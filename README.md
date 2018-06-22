@@ -52,8 +52,8 @@ Be generous and develop a culture of giving - giving of your attention, time, an
 
 #### Stress Management
 
-“It’s not the load that breaks you down, it’s the way you carry it.” 
-- Lou Holtz               
+>“It’s not the load that breaks you down, it’s the way you carry it.” 
+>- Lou Holtz               
 
 Work hard, but don’t forget to take breaks. Pay attention to when you are reaching the point of being overstressed - and why. Give yourself what you need in that moment. Whether it’s sleep, a good meal, getting some exercise, calling a friend, or something else, do what shifts your perspective back to where it needs to be to be: your best self. This will undoubtedly have a long-lasting, positive impact on your success at Flatiron School and beyond.
 
